@@ -206,7 +206,3 @@ Hak cipta konten berada pada:
 > Kecamatan Kawangkoan Utara — Kabupaten Minahasa
 
 ---
-
-Terima kasih 🙌  
-Apabila diperlukan penyesuaian tambahan (tata bahasa, gaya formal, atau struktur dokumentasi),
-saya siap membantu melakukan penyempurnaan lebih lanjut.
